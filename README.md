@@ -1,4 +1,4 @@
-## &nbsp;&#7136;&nbsp;\_&nbsp;&nbsp;&#811;&nbsp;\_&nbsp;&#7108;&nbsp;&#2669;
+## /&#5152;&nbsp;&#757;&gt;&nbsp;&#10826;&nbsp;&lt;&#757;&#12510;
 
 <p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;へ&nbsp;&nbsp;&nbsp;&nbsp;♡&nbsp;&nbsp;&nbsp;&nbsp;╱|、<br>
@@ -7,9 +7,7 @@
 &nbsp;乀&nbsp;(ˍ,&nbsp;ل&nbsp;ل&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;じしˍ,)ノ<br>
 </p>
 
----
-
-#### about me
+## about me
 
 <sub>Languages</sub>
 
